@@ -18,6 +18,6 @@ Kelompok 4
 
 4. Alan Budi Bakti
 
-5 Cynthia Anggraeni
+ 5 Cynthia Anggraeni
 
 6. Sultan Zidan
